@@ -1,0 +1,1 @@
+precitaj si to
